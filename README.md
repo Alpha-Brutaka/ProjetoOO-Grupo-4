@@ -3,7 +3,7 @@ Integrantes:
 
 Caio Sulz - 202046004
 
-Gustavo Zanette
+Gustavo Zanette - 180018272
 
 Guilherme de Oliveira Mendes - 180113496
 
